@@ -5,6 +5,7 @@ Email: cerega193@yandex.ru
 LinkedIn: [LinkedIn](https://www.linkedin.com/in/cerega2014/)  
 GitHub: [GitHub](https://github.com/cerega2014/cerega2014)
 
+[Сертификат о завершении курсов по ручному тестированию]( https://v2.coreapp.ai/certificate/pdf/658c4f1f3596bf87b9aeda08)
 ---
 
 ### Профессиональный опыт
